@@ -5,7 +5,7 @@
   "scripts": {
     "dev": "vitepress dev docs",
     "build": "babel src -d lib",
-    "test": "jest"
+    "test": "jest",
     "preview": "vitepress preview docs"
   }
 }
