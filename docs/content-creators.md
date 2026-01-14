@@ -15,7 +15,7 @@ Social media links.
 ### loosha
 [TikTok](https://www.tiktok.com/@indelible_.8)
 ### lym
-[Instagram](https://www.instagram.com/lymwktz) / [TikTok](https://www.tiktok.com/@lymktwz)
+[Instagram](https://www.instagram.com/wthlymm) / [TikTok](https://www.tiktok.com/@lymktwz)
 ### mishkashahym
 [Instagram](https://www.instagram.com/mishkashahym) / [TikTok](https://www.tiktok.com/@mishkashahym)
 ### nai
