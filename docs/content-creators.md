@@ -39,4 +39,4 @@ Social media links.
 ### thaima
 [Instagram](https://www.instagram.com/tv11mq) / [TikTok](https://www.tiktok.com/@thaimangoprincess)
 ### rashfa
-[Instagram](https://www.instagram.com/rashfaahmed) / [TikTok](https://www.tiktok.com/@rashfaahmed)
+[Instagram](https://www.instagram.com/rashfaahmed) / [TikTok](https://www.tiktok.com/@rashfaahmd)
