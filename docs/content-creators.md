@@ -19,7 +19,7 @@ Social media links.
 ### mishkashahym
 [Instagram](https://www.instagram.com/mishkashahym) / [TikTok](https://www.tiktok.com/@mishkashahym)
 ### nai
-[Instagram](https://www.instagram.com/nainailaaaaa.aa/) / [TikTok](https://www.tiktok.com/@dollette.ee)
+[Instagram](https://www.instagram.com/nainailaaaaa.aa/) / [TikTok](https://www.tiktok.com/@nainailaaa.aa)
 ### riva
 [Instagram](https://www.instagram.com/riva_amoosa) / [TikTok](https://www.tiktok.com/@rivaafrl)
 ### shiyer
