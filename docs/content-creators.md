@@ -9,7 +9,7 @@ Social media links.
 ### anaaashraf
 [Instagram](https://www.instagram.com/anaaashraf.__) / [TikTok](https://www.tiktok.com/@anaaashraf2)
 ### ela
-[Instagram](https://www.instagram.com/eekkkss21) / [TikTok](https://www.tiktok.com/@eeekkksss21)
+[Instagram](https://www.instagram.com/eekkkss21) / [TikTok](https://www.tiktok.com/@eekkks21)
 ### jiwy
 [Instagram](https://www.instagram.com/jiiwyyyy) / [TikTok](https://www.tiktok.com/@jiiiwyyy)
 ### loosha
